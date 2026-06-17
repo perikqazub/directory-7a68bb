@@ -8,18 +8,18 @@ Handy references and sites, saved for later.
 - [我的第一个站点](https://sites.google.com/view/site-jffzyw)
 - [极速资讯小站](https://sites.google.com/view/site-2cnt5l)
 - [每日精选导航](https://sites.google.com/view/site-ad8usj)
-- http://c.kfmail.top/c/directory-7a68bb
 - [我的第一个站点](https://sites.google.com/view/site-mzocm1)
+- http://43.133.171.72/c/directory-7a68bb
 - [极速资讯小站](https://sites.google.com/view/site-q65hly)
 - [每日精选导航](https://sites.google.com/view/site-psvs0x)
 - [极速资讯小站](https://sites.google.com/view/site-z3iukc)
+- http://43.133.171.72/c/directory-7a68bb
 - [每日精选导航](https://sites.google.com/view/site-x5s3do)
 - [我的第一个站点](https://sites.google.com/view/site-5vop5c)
 - [每日精选导航](https://sites.google.com/view/site-sytdy8)
-- http://c.kfmail.top/c/directory-7a68bb
 - [我的第一个站点](https://sites.google.com/view/site-h22fpr)
-- http://c.kfmail.top/c/directory-7a68bb
 - [极速资讯小站](https://sites.google.com/view/site-hdi4qy)
+- http://43.133.171.72/c/directory-7a68bb
 - [极速资讯小站](https://sites.google.com/view/site-xb0fr9)
 - [我的第一个站点](https://sites.google.com/view/site-z04d35)
 
